@@ -10,5 +10,4 @@ caso queiram entrar em contato meu instagram m0reira_isinhaa11
 
 desde ja obrigadinhaaaaaaa!!!
 
-![]()
-https://media1.tenor.com/m/3EQTI8e1gsgAAAAd/spike-andrea-drews.gif
+![](https://media1.tenor.com/m/3EQTI8e1gsgAAAAd/spike-andrea-drews.gif)
